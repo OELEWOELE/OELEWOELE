@@ -2,6 +2,6 @@
 🌈shitposting🌈
 ✨           ✨
 
-[Loading Page](https://OELEWOELE.github.io)
+(https://OELEWOELE.github.io)
 
 ![alt text](https://i.imgflip.com/2mojly.jpg)
